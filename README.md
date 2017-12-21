@@ -1,0 +1,2 @@
+# memorigw
+ingatan saya
